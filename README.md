@@ -93,12 +93,6 @@ To provide meaningful insights that help banks:
 
 ---
 
-## 📬 Contact
-
-**Pranay Gangadhar Namamula**\
-📍 London, UK\
-📧 [pranaygangadhar@gmail.com](mailto\:pranaygangadhar@gmail.com)\
-🔗 [LinkedIn](https://linkedin.com/in/pranay-gangadhar-namamula)
 
 ---
 
